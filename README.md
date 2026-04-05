@@ -1,4 +1,4 @@
 # BingoGambleGame
 Einfach kleines Projekt
 
-Digga was geht ab ss
+hat sich was geändert HILFE ICH AAAA
